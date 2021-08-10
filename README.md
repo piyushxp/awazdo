@@ -1,3 +1,3 @@
 # awazdo
 
-<img src='https://www.awesomescreenshot.com/image/11798657?key=b1df02a2fc5dbd17644e194d1d51f32d' />
+[![9hjzC.png](https://i.im.ge/2021/08/10/9hjzC.png)](https://im.ge/i/9hjzC)
